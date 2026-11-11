@@ -1,3 +1,3 @@
 # Pin images
 
-Images for Pinterest pins (The Caregiver Binder, If Something Happens to Me).
+Marketing images for Pinterest pins and product covers (Family Binder printables). Images only, no product files.
